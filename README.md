@@ -11,4 +11,4 @@ CSE
 Try to form a companion
 who company you.
 
-👆😂
+👆awesome quote😂
